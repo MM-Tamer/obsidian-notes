@@ -1,0 +1,2 @@
+Every time your attention is taken away from the tasks that you should be doing, you end up feeling worse. Because it compounds every time you take a trip to distraction land.
+When you're distracted from your tasks you'll end up feeling worse and ironically when you're focused on your tasks, you will feel better.
